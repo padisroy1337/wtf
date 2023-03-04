@@ -1,1 +1,1 @@
-                                                    Best hwid protection by vasya2010 & kartoshkaYUTUB
+Best hwid protection by vasya2010 & kartoshkaYUTUB
